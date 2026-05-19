@@ -1,4 +1,4 @@
-# 
+# ultimate GIMP para PC executor é o melhor GIMP para PC executor com preenchimento consciente de conteúdo e edição baseada em camadas. Seguro, confiável e otimizado para máximo
 
 
 
